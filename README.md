@@ -1,0 +1,2 @@
+# portfolio
+muhammadroziqning shaxsiy portfoliosi
